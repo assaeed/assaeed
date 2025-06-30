@@ -24,8 +24,7 @@
 ---
 
 ### 📫 Contact Me
-- 💼 LinkedIn: [عبدالله السعيد على LinkedIn](https://www.linkedin.com/in/%D8%B9%D8%A8%D8%AF%D8%A7%D9%84%D9%84%D9%87-%D8%A7%D9%84%D8%B3%D8%B9%D9%8A%D8%AF-10b41b3b/)
-
+- 💼 LinkedIn: [Abdullah Alsaeed](https://www.linkedin.com/in/abdullah-alsaeed-10b41b3b/)
 
 ---
 
